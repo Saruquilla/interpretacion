@@ -3,4 +3,4 @@ Va a compartir opciones de interpretar lo sueños, basándose en el psicoanális
 Ninguna persona es igual a otra, así que siempre sera solo una interpretacion abierta, que puede necesitar ser amplificada y detallada,  con la evaluacion de una psiquiatra.
 Muchas personas a traves de los sueños expresan sus temores, miedos y preguntas, en ese momento dejan fluir lo que su mente tiene enterrado, porque no sabe manejarlo.
 Otras veces son simples anhelos, que la fantasía permite hacer realidad.
-Unas cuantas ocasiones on los demonios internos, que nos hacen daño.
+Unas cuantas ocasiones son los demonios internos, que nos hacen daño.
